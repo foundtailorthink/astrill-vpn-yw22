@@ -1,10 +1,10 @@
-Instantáneo Astrill VPN Extensión | soporte multiprotocolo + IP dedicada es el mejor Astrill VPN extensión con soporte multiprotocolo y IP dedicada. Seguro y optimizado.
+
 
 
 
 ---
   
-  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW](https://foundtailorthink.github.io/astrill-vpn-yw22/ ) |
+  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( ) |
  |---------------------|----------------------:|
 
 
