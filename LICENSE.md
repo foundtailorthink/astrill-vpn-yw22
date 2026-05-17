@@ -1,4 +1,4 @@
-
+Instant Astrill VPN Extension | multi-protocol support + dedicated IP is the best Astrill VPN extension with multi-protocol support and dedicated IP. Secure and optimized.
 
 
 
